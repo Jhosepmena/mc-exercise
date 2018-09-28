@@ -34,3 +34,8 @@ Scooby-Dooby-Doo, here are you.
 You're ready and you're willing. 
 If we can count on you Scooby Doo, 
 I know we'll catch that villian.
+
+Carol is the best. Bob needs to go home. 
+
+Let's all go home soon, eh?
+

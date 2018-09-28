@@ -51,3 +51,8 @@ Velma is da shit
 This is getting repepitive.
 Somebody make it stop
 42
+
+I see no changes
+I wake up in the morning and I ask myself
+Is life worth livin' 
+Should I blast ...

@@ -42,6 +42,8 @@ I know we'll catch that villian.
 
 Carol is the best. Bob needs to go home. 
 
+Carol is rude and needs to work on their attitude
+
 Let's all go home soon, eh?
 
 Velma is da shit

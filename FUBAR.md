@@ -16,6 +16,8 @@ Darrin and Jhosep are going to rock this.
 
 Carol Computer
 
+what is going on now hello
+
 I am just adding a bunch of stuff
 
 Scooby-Dooby-Doo, Where Are You? 
@@ -43,3 +45,4 @@ Carol is the best. Bob needs to go home.
 Let's all go home soon, eh?
 
 Velma is da shit
+

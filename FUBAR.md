@@ -8,12 +8,15 @@ Carol we almost out of here? I've got places to be.
 
 I'm down for some chinese food tonight, and maybe some bowling. 
 
-
 This is so amazing. 
+
+hello
 
 Darrin and Jhosep are going to rock this.
 
 Carol Computer
+
+I am just adding a bunch of stuff
 
 Scooby-Dooby-Doo, Where Are You? 
 We got some work to do now. 

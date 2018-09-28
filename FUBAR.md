@@ -48,11 +48,35 @@ Let's all go home soon, eh?
 
 Velma is da shit
 
+Don't wanna be an American idiot
+Don't want a nation under the new media
+And can you hear the sound of hysteria?
+The subliminal mind-fuck America
+Welcome to a new kind of tension
+All across the alien nation
+Where everything isn't meant to be okay
+Television dreams of tomorrow
+We're not the ones who're meant to follow
+For that's enough to argue
+Well maybe I'm the faggot America
+I'm not a part of a redneck agenda
+Now everybody do the propaganda
+And sing along to the age of paranoia
+Welcome to a new kind of tension
+All across the alien nation
+Where everything isn't meant to be okay
+Television dreams of tomorrow
+We're not the ones who're meant to follow
+For that's enough to argue
+Don't wanna…
+
 This is getting repepitive.
 Somebody make it stop
 42
+
 
 I see no changes
 I wake up in the morning and I ask myself
 Is life worth livin' 
 Should I blast ...
+
